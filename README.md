@@ -1,1 +1,0 @@
-# DanielVasquez-ROCK.github.io
